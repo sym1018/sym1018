@@ -1,2 +1,2 @@
 # sym1018
-乐天安命，擅长做死。
+UTC+8, 16 years old forever.
